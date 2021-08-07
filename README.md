@@ -1,4 +1,4 @@
-### Hi there 👋
+### RICKY - BUILD THIS OUT TO INCLUDE A POTENTIAL SET OF PROJECTS AND INTRODUCTION INTO YOU 👋
 
 <!--
 **u1345653/u1345653** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
